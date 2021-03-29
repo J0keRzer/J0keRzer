@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @J0keRzer
-- 👀 I’m interested in u
-- 🌱 I’m currently learning to kms
-- 💞️ I’m looking to collaborate on ur mom
-- 📫 How to reach me (u cant)
+- 👀 I’m interested in HTML
+- 🌱 I’m currently learning scratch
+- 💞️ I’m looking to collaborate on HTML os
+- 📫 How to reach me paypal.me/
 
 <!---
 J0keRzer/J0keRzer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
