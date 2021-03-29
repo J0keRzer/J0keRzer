@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @J0keRzer
 - 👀 I’m interested in u
-- 🌱 I’m currently learning kys
+- 🌱 I’m currently learning to kms
 - 💞️ I’m looking to collaborate on ur mom
 - 📫 How to reach me (u cant)
 
